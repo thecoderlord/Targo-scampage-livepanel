@@ -15,6 +15,6 @@ Features :
 
 
 Contact :
-* Video Channel:  https://t.me/thecoderlabchannel 
-* Telegram sales: @thecoderlab
+* Video Channel:  https://t.me/thecoderlordchannel
+* Telegram sales: @thecoderlord
 * youtube:        https://www.youtube.com/@scampagelive/
